@@ -1,2 +1,2 @@
 # Casino-Java 
-![](https://thumbs.gfycat.com/IlliterateUnimportantAsianelephant-mobile.mp4)
+![](https://i.gifer.com/EGI2.gif)
